@@ -1,4 +1,4 @@
-- 👋 Hi, Ashley Panget
+- 👋 Hi, Angeline Ortega
 - 👀 I’m interested in swimming sa puso mo
 - 🌱 I’m currently learning pre cal
 - 💞️ I’m looking to collaborate on basta
